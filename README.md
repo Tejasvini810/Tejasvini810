@@ -5,7 +5,7 @@ I'm basically from Karanataka but lives in Pune, Maharashtra with my family.
 
 ## Writing
 
-- 🖊 Interested in writing scripts, screeplay scripts, essay and short stories.
+- 🖊 Interested in writing scripts, screenplay scripts, essay and short stories.
 
 ### Education
 - 🌱 I'm currently persuing B.Tech first year in Motital Nehru National Institute of Technology and my branch is Computer Science and Engineering.
