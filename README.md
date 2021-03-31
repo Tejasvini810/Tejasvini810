@@ -15,7 +15,7 @@ I'm basically from Karanataka but lives in Pune, Maharashtra with my family.
 ## Connect
 
 - 💡 **[Instagram](https://www.instagram.com/__teju__0810/)** :Do follow me on IG to share common preferences ,likes,hobbies etc 🎈
-- 💼 **[Linkedin](https://www.linkedin.com/in/tejasvini-konkal-53568a20a/)** - Let's connect, share each your creative ideas.
+- 💼 **[Linkedin](https://www.linkedin.com/in/tejasvini-konkal-53568a20a/)** - Let's connect, can share creative ideas.
 
 ## Hobbies
 
