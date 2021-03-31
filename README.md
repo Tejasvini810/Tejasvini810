@@ -1,16 +1,24 @@
 ### Hi there 👋
 
-<!--
-**Tejasvini810/Tejasvini810** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am Tejasvini, a beginner in the world of Coding 💻. 
+I'm basically from Karanataka but lives in Pune, Maharashtra with my family.
 
-Here are some ideas to get you started:
+## Writing
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🖊 Interested in writing scripts, screeplay scripts, essay and short stories.
+
+### Education
+- 🌱 I'm currently persuing B.Tech first year in Motital Nehru National Institute of Technology and my branch is Computer Science and Engineering.
+- 🌱 I have completed my 12th from Jai Hind Junior College which is in Pune.
+
+
+## Connect
+
+- 💡 **[Instagram](https://www.instagram.com/__teju__0810/)** :Do follow me on IG to share common preferences ,likes,hobbies etc 🎈
+- 💼 **[Linkedin](https://www.linkedin.com/in/tejasvini-konkal-53568a20a/)** - Let's connect, share each your creative ideas.
+
+## Hobbies
+
+- I like 📚| Photography 🎥 | Playing Online Games like GTA 5, Walking Death👾 | Chess ♟️ | Dancing 💃 | Travelling 🚌
+
+**Say Hi 👋 or let's share views/ideas on various topics 😛** 
