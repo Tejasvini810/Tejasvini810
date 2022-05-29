@@ -1,8 +1,7 @@
 ### Hi there 👋
 
-I am Tejasvini, a beginner in the world of Coding 💻. 
-I'm basically from Karanataka but lives in Pune, Maharashtra with my family.
-
+I am Konkal Tejasvini Ramesh, a beginner in the world of Coding 💻. 
+I'm from Raichur, Karnataka.
 ## Writing
 
 - 🖊 Interested in writing screenplay scripts, essay and short stories.
