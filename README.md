@@ -7,7 +7,7 @@ I'm from Raichur, Karnataka.
 - 🖊 Interested in writing screenplay scripts, essay and short stories.
 
 ### Education
-- 🌱 I'm currently persuing B.Tech second year in Motital Nehru National Institute of Technology and my branch is Computer Science and Engineering.
+- 🌱 I'm currently persuing B.Tech third year in Motital Nehru National Institute of Technology and my branch is Computer Science and Engineering.
 - 🌱 I have completed my 12th from Jai Hind Junior College which is in Pune.
 
 
